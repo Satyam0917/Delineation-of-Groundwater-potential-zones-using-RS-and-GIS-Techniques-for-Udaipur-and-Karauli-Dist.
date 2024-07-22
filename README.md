@@ -1,0 +1,1 @@
+# Delineation-of-Groundwater-potential-zones-using-RS-and-GIS-Techniques-for-Udaipur-and-Karauli-Dist.
